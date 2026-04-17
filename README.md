@@ -1,1 +1,1 @@
-![superbowllxlogo](superbowllxlogo.jpeg)
+![superbowllxlogo](superbowllxlogo.jpg)
